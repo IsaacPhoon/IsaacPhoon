@@ -1,4 +1,4 @@
-# Hi there, I'm Isaac Phoon 👋
+# Hello! I'm Isaac Phoon
 
 ## About Me
 
